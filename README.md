@@ -60,10 +60,6 @@
 
 ---
 
-## 📫 Connect With Me
-- LinkedIn: (add your link here)
-- Portfolio: (add later)
 
----
 
 ⭐ **"Consistency beats motivation. I show up every day."**
